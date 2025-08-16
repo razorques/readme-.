@@ -1,6 +1,14 @@
+<div align="center">
 
- 
- 
- <img width="215" height="20" alt="image" src="https://github.com/user-attachments/assets/6cb60077-9319-4bff-89ba-bfc8f9eb0832" />
+<div align="center">
 
-<img width="400" height="71" alt="image" src="https://github.com/user-attachments/assets/8226b0c4-4a6f-4620-89fb-09314bf63a99" />
+![](https://komarev.com/ghpvc/?username=vampyrezcry&color=55649f&label=the+dream+yet+to+be+dreamed)
+
+![](https://64.media.tumblr.com/a85f50ff9a62527135b3bc3396d0572e/c6281a24c987ceea-ec/s400x600/dd5500f2efc3785ebeb7d56603f1db2930cf73e5.pnj)
+
+![](https://files.catbox.moe/pe5leg.png)‎
+ 
+![](https://64.media.tumblr.com/a85f50ff9a62527135b3bc3396d0572e/c6281a24c987ceea-ec/s400x600/dd5500f2efc3785ebeb7d56603f1db2930cf73e5.pnj)
+
+ [RENTRY](https://rentry.co/ilovedainsleif)‎ ‎  ‎  ‎  ‎ [ATA](https://vampyrezcry.atabook.org) ‎  ‎  ‎  ‎ [STRAW](https://vampyrezcry.straw.page)
+ ‎ 
